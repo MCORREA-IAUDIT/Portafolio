@@ -40,11 +40,11 @@ Especialista en:
 
 ¿Quieres colaborar, comentar o intercambiar ideas?
 
-**✉️** marco.tuemail@dominio.com  
-**💼** [LinkedIn](https://www.linkedin.com/in/tuusuario)  
+**✉️** marco.correa@iaudit.cl  
+**💼** [LinkedIn]( https://www.linkedin.com/in/marco-correa-p%C3%A9rez-7a31b5246/)
 **🌐** [Sitio personal](https://www.tusitioweb.com) *(si aplica)*
 
 ---
 
-> 💡 *“El riesgo bien visualizado es medio riesgo controlado.”*
+> 💡 *“El riesgo bien visualizado es medio riesgo controlado.�?
 
